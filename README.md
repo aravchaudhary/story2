@@ -1,2 +1,2 @@
 # story2
-being s storyteller
+being a storyteller
